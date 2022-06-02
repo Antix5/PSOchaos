@@ -1,0 +1,1 @@
+Some of the pictures on here are not my own, all the citation are available in the presentation
